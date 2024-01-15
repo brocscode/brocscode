@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brocscode
-- 👀 I’m a northafrican warrior 
+- 👀 Northafrican warrior 
 - 🌱 I’m in the process of becoming a car mechanic and hopefully a dev 
 - 💞️ I’m looking to collaborate on anything as long as it helps me grow
 - 📫 zzaidoudi@gmail.com
